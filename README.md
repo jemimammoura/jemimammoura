@@ -1,1 +1,1 @@
-Olá, eu me chamo Priscila Jemima, sou estudante de Mecatrônica do Campus Parnamirim, 
+Olá, eu me chamo Priscila Jemimatenho 19 anos , sou estudante de Mecatrônica do Campus Parnamirim, atualmente estou trabalhando no projeto instrumentação Biomecatrônica na parte de programação, área da qual eu gosto muito, e espero poder contribuir com o mesmo de forma positiva, e também adquirir mais conhecimentos sobre a área 💋
